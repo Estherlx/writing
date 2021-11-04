@@ -1,2 +1,2 @@
-# writing
-website to express myself by writing
+# Esther's life
+Love, Sincerity, Inspiration, Connection
